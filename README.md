@@ -1,1 +1,1 @@
-My favorite food is: Burger
+My favorite food is: Cheeseburger
